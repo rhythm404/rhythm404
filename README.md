@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @rhythmjaiswal
-- 👀 I’m interested in improving my coding skills.
+- 👋 Hi, I’m Rhythm Jaiswal
+- 👀 I’m here looking for better opportunities to grow and gain work experience in technology.
 - 🌱 I’m currently studying in Ajay Kumar Garg Engineering College,Ghaziabad
 - 💞️ I’m looking to collaborate on projects that would enhance my technical skills
 - 📫 How to reach me @rhythmjaiswal116@gmail.com
